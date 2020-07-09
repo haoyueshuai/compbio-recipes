@@ -7,5 +7,5 @@ You can also send a link to your profile on a professional service (eg, Google S
 | Gao Wang  | gaow | - | I consider myself a foodie (struggling with cholesterol control) and a musician (rusting drastically in skills)|
 | Diana Cornejo | dianacornejo | Gao | I love to travel, get to know people and cultures and learn new things everyday|
 | Andrea Ucroz  | andreaucroz  | Diana | I love animals, mostly dogs and cats and enjoy trying different restaurants and types of food every place I go |
-| Hao Sun | hsun3163 | Diana | I like making beats on the side
+| Hao Sun | hsun3163 | Diana | I like making beats on the side |
 | Haoyue Shuai | hs3265 | Diana | I love painting, sketching, playing ukulele, and other artsy things |
